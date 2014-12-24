@@ -1,3 +1,3 @@
 Groove
 ======
-For more information CONTACT ME !
+For more informations CONTACT ME !
